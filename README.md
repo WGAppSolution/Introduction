@@ -17,7 +17,8 @@ There are several projects that already done by myself.
 
 You can contact be by email with Subject -> Project Offer
 
-* email: williamgun007@gmail.com
+* Email: williamgun007@gmail.com
+* Contact Number: +6287741706627
 
 ### Note
 
